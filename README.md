@@ -41,4 +41,4 @@ Version 1.0, 2025
 7. Governing Law  
    This license shall be governed by and construed in accordance with the laws of the People’s Republic of China, without regard to its conflict-of-law provisions.
 
-For questions or permission requests, contact: [your-email@example.com]
+For questions or permission requests, contact: [852305855@QQ.COM]
